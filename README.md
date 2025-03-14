@@ -3,4 +3,4 @@
 - i am currently learning python,java ,html , css
 - you can reach me using my gmail gglallysharma@gmail.com
 - he/him
-- i am also an athele.
+- i am also an athelete
